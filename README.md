@@ -82,7 +82,7 @@ I enjoy solving problems, learning new technologies, and building projects that 
 
 ## 🌐 Connect With Me
 
-LinkedIn: https://www.linkedin.com/in/Rupesh Kumar Kashyap
+LinkedIn: https://www.linkedin.com/in/rupesh-kumar-kashyap-75b970326/
 GitHub: https://github.com/Rupeshkashyap2
 ---
 
